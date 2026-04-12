@@ -1,0 +1,2 @@
+# nityapanchang-privacy
+Privacy policy
